@@ -1,5 +1,5 @@
 
-#### Who do you think you are? / "Other" and Another "Other"
+### Who do you think you are? / "Other" and Another "Other"
 
 My birth mum is Sri Lankan and Moldavian\
 My birth dad is Nigerian and Taiwanese
