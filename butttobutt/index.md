@@ -1,14 +1,12 @@
 ### Butt to butt
 
 Horizontal in bed\
-Your face rotated 180 degrees from mine
-
+Your face rotated 180 degrees from mine\
 You calculated this angle to avoid my breath line
 
 Faces to perimeter\
 Butts to centre\
-Butt touches butt
-
+Butt touches butt\
 This, I cannot measure\
 &nbsp;  
 &nbsp;  
