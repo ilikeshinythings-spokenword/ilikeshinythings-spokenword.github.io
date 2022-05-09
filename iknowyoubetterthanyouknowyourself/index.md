@@ -7,7 +7,7 @@ I know you get to work just before 7:10\
 It was actually the clock in system that told me, my friend
 
 You then have a coffee around 7:35\
-I know because your fitbit told me that you were more alive
+I know because fitbit said you were more alive
 
 Your phone sends me more information too\
 I know that its 18 steps for you to go to the loo\
@@ -16,7 +16,8 @@ I know that its 6 minutes if you need a poo
 Now I've learnt your patterns and trends,\
 Let me try to make amends\
 I know that today, you spent longer on the toilet\
-And your measurements are off, according to your fitbit\
+And your measurements are off, according to fitbit
+
 My recommendation is calculating... You should go see a doctor.\
 I predict that something might be severely wrong here
 
