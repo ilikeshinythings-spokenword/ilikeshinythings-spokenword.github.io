@@ -18,7 +18,7 @@ the never ending\
 archaic rule\
 &nbsp;  
 &nbsp;  
-<sub>* "Love the culture, but they don't love us" is a quote from Missy, the founder of the brand Misemi\
+<sub>* "Love the culture, but they don't love us" is a quote from Missy, the founder of the brand Misemi
 https://misemi.co.uk</sub>
 
 <sub>Written on 26 April 2022</sub>
