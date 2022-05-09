@@ -1,4 +1,4 @@
-### ( I ) love me too
+### (I) love me too
 
 Enter my heart, I plea of you\
 Knowing too well, you are a tool
@@ -8,7 +8,7 @@ As you sleep, you lie... Rude\
 Inspire my thoughts, make me dream\
 Pictures of us, until I scream
 
-The future fog, finally lifts for me\
+Finally the fog, lifts for me\
 Pictures of us, I no longer see\
 Projections of me, I now see clear\
 Without your jibes, prods and overarching fear
