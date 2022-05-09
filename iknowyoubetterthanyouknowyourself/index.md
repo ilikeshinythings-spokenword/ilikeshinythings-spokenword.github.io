@@ -1,4 +1,4 @@
-#### I know you better than you know yourself
+### I know you better than you know yourself
 
 Didn't I tell you not to share personal details online\
 I know you leave the house at 6:45
@@ -21,7 +21,7 @@ My recommendation is calculating... You should go see a doctor.\
 I predict that something might be severely wrong here
 
 Do you trust that I am right?\
-Or does all of this give you an unnerving fright?
+Or does all of this give you an unnerving fright?\
 &nbsp;  
 &nbsp;  
 <sub>Written on 10 May 2022</sub>
