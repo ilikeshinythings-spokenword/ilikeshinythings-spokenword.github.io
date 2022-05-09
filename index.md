@@ -11,9 +11,11 @@ I write stories about my experiences as:
 
 Hollie McNish has been a major influence on my work.
 
-My writing should be easy to read and hopefully funny (or ferny)! I seem to really like to use poo and pooping as a way to to describe my experiences so you might want to avoid these poems with a poo emoji next to them.
+My writing should be easy to read and hopefully funny! (or ferny if you read [Have a try](https://ilikeshinythings.github.io/haveatry/))
 
-Here are all of the content warnings and the related emoji:
+I seem to really like to use poo and pooping as a way to describe my experiences so you might want to avoid these poems with a poo emoji next to them.
+
+Here are all of the content warnings and the related emojis:
 
 💩 Warning: poo references\
 ⁉️ Warning: sexual assault\
