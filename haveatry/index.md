@@ -5,7 +5,8 @@ Your carers would say\
 '_Have you had a try?_'
 
 I knew they meant toilet\
-but now I know that\
+but now I know that
+
 '_Trying to do\
 is as important\
 as having a poo_'
