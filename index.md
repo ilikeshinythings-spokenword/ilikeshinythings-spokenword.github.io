@@ -1,8 +1,4 @@
-Click on the links to access the spoken word poetry.
-
-Enjoy <3
-
-----
+### About the artist
 
 Weeelllcccoommmeeeeee!
 
@@ -17,7 +13,7 @@ Hollie McNish has been a major influence on my work.
 
 My writing should be easy to read and hopefully funny (or ferny)! I seem to really like to use poo and pooping as a way to to describe my experiences so you might want to avoid these poems with a poo emoji next to them.
 
-I have included some more content warnings through using other emojis, please see them below.
+Here are all of the content warnings and the related emoji:
 
 💩 Warning: poo references\
 ⁉️ Warning: sexual assault\
