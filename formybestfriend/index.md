@@ -5,7 +5,7 @@ Didn't think once what others saw\
 Didn't think once that I'm adored\
 What keeps me present are my flaws
 
-Don't want to look back to relive memories\
+Don't look back to relive memories\
 Just look to the future to getting lairy
 
 But y'see, the future hasn't happened the way I planned\
