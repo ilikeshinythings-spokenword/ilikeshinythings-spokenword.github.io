@@ -8,8 +8,7 @@ is not in a tent getting up to wrong doings
 Nor is it in a hotel, pool or bar\
 The fondest memory I have of you is eating curry in the car
 
-Your head had been bleeding\
-and my eyes had been weeping,\
+Your head had been bleeding and my eyes had been weeping,\
 our love had definitely deepened\
 &nbsp;  
 &nbsp;  
