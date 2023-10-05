@@ -12,7 +12,7 @@ I write stories about my experiences as:
 
 Hollie McNish has been a major influence on my work.
 
-This is also a great book - Invisible Women: Exposing Data Bias in a World Designed for Men Hardcover by Caroline Criado Perez.
+This is also a great book - Invisible Women: Exposing Data Bias in a World Designed for Men by Caroline Criado Perez.
 
 
 My writing should be easy to read and hopefully funny! (or ferny if you read [Have a try](https://ilikeshinythings-spokenword.github.io/haveatry/))
